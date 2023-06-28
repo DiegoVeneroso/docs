@@ -1,0 +1,2 @@
+# docs
+Politica de Privacidade
